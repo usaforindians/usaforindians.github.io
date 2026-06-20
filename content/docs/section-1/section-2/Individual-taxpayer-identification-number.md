@@ -17,6 +17,10 @@ There is a DIY process and there is a Paid Service, I will first describe DIY fo
 
 ## DIY
 
+courier charges - 3500 by DHL
+
+apostle charges - 1500
+
 this guide is similar to this [one](https://old.reddit.com/r/churningcanada/comments/13zmqe3/2023_itin_guide_2022_tax_forms_for_canadians_to/) but sort of targetted to Indians
 
 You will need to Apostle the colored copy of the passport, and courier it to IRS and commmunicate with them if there are any errors
