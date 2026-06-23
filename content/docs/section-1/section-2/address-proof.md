@@ -1,5 +1,7 @@
 unbeatable address proof
 
+https://community.nomadgate.com/t/non-cmra-virtual-mailboxes-in-the-us/60740
+
 1. Search Anytime mailbox that looks like residential in google streets and maps, scrape nomadgate link.
 2. Get USA IP that is near to the address from rainproxy.io (ask me for referal)
 3. Get USA number from jmp.chat (ask me for free month), ask support for premium+ routes.
