@@ -12,4 +12,4 @@ reasons:
 
 Lack of RECENT installment information
 
-equifax - 8006851111
+equifax - 8006851111 (9 am to 8 pm ET monday to friday, 9am to 6pm ET sat and sun)
