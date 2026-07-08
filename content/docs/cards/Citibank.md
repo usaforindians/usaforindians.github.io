@@ -2,7 +2,7 @@ citi double cash
 
 citi doesn't send email only mailing address letter.
 
-citi recon line - +18006955171
+citi recon line - +18006955171 ( 8:00 a.m. and midnight Eastern Time (ET), every day )
 
 reasons:
 
