@@ -2,7 +2,7 @@ https://jmp.chat is the service I trust for mobile number.
 
 you may want to setup SIP as well for call queeing in linphone.
 
-https://jmp.chat/faq#support most problems they will solve
+https://jmp.chat/faq#support most problems they will solve (9-5 north america)
 
 cheogram ANDROID onboarding flow is the smoothest, ask me for referral for free month
 
