@@ -10,3 +10,7 @@ https://community.nomadgate.com/t/non-cmra-virtual-mailboxes-in-the-us/60740
 6. You get address proof
 7. apply for AmEx global
 8. when you get AmEx, you have a permanent address proof
+
+if you have a friend or relative
+
+get https://www.vonageforhome.com/ or a Wifi in your name.
