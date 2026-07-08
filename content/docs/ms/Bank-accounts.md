@@ -15,6 +15,10 @@ wells fargo - personal account
 
 points miles credit card, bank of america, 2500 in personal and checking account
 
+HSBC Premier (TRV 50L or 3L salary account) > HSBC Global
+
+schwab international and IBKR
+
 footnotes
 
 [1] https://www.youtube.com/watch?v=38zgGF8HrcY
