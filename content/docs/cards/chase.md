@@ -7,9 +7,9 @@ https://www.reddit.com/r/churning/comments/b5di1x/step_by_step_guide_to_getting_
 reconsideration lines / phone for reason of rejection of CC's:
 
 Personal: 1-888-270-2127, open:
-8am-10pm Monday to Friday
-8am-8pm Saturday & Sunday
-Business: 800-453-9719, open 1pm-10pm Monday to Friday
+8am-10pm ET Monday to Friday
+8am-8pm ET Saturday & Sunday
+Business: 800-453-9719, open 1pm-10pm ET Monday to Friday
 
 Chase ink cash -- too many requests
 
