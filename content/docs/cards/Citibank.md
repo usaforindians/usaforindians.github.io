@@ -9,4 +9,7 @@ reasons:
 1. no martgage
 2. too many requests
 3. not enough line of credit
-4. 
+
+Lack of RECENT installment information
+
+equifax - 8006851111
