@@ -10,3 +10,8 @@ Personal: 1-888-270-2127, open:
 8am-10pm Monday to Friday
 8am-8pm Saturday & Sunday
 Business: 800-453-9719, open 1pm-10pm Monday to Friday
+
+Chase ink cash -- too many requests
+
+Chase sapphire reserve - w9 form fax it.  8886439628
+
