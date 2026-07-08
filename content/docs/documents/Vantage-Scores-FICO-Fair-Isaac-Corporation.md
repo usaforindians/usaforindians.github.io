@@ -1,3 +1,7 @@
+vantage scores are better proxy.
+
+take the 1$ per month for initial month of equifax to get all three beurous score.
+
 18883784329
 
 9:00 AM and 9:00 PM ET, Mon-Fri; between 9:00 AM and 6:00 PM ET, Sat-Sun
