@@ -15,3 +15,4 @@ Chase ink cash -- too many requests
 
 Chase sapphire reserve - w9 form fax it.  8886439628
 
+https://www.reddit.com/r/Banking/comments/1hwowir/why_does_chase_insist_on_asking_me_obscure/
