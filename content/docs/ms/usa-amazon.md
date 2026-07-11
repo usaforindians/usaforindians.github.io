@@ -1,5 +1,6 @@
 US amazon customer support - +18003885512
 
+if its saying phone number already in use, change the email to a phone number.
 
 1. US IP
 2. US number
