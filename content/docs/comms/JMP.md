@@ -1,3 +1,5 @@
+https://www.youtube.com/watch?v=rKNBTHvitT8
+
 https://jmp.chat is the service I trust for mobile number.
 
 you may want to setup SIP as well for call queeing in linphone.
