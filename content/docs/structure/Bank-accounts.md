@@ -17,7 +17,7 @@ points miles credit card, bank of america, 2500 in personal and checking account
 
 HSBC Premier (TRV 50L or 3L salary account) > HSBC Global
 
-schwab international (1AM ET monday to friday) and IBKR
+schwab international (8776861937 Monday to Friday 1 am et to 1 am) and IBKR
 
 footnotes
 
